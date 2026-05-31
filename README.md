@@ -1,1 +1,1 @@
-# BrightAbout
+# BrightHigh
